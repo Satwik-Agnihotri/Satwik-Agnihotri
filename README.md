@@ -26,7 +26,7 @@
 ---
 
 ### 📫 Contact Me
-- 💼 [LinkedIn](https://www.linkedin.com
+- 💼 [LinkedIn](https://www.linkedin.com/satwik-agnihotri)
 - 🌐 Portfolio coming soon...
 
 ---
